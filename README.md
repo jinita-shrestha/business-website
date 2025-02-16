@@ -1,1 +1,1 @@
-https://jinita1910.github.io/business-website/index.html
+https://jinita-shrestha.github.io/business-website
